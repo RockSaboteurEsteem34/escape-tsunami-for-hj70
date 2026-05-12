@@ -1,4 +1,4 @@
-#  
+#  vip anime card collection Scripts offers the most advanced anime card collection Script, with teleport and god mode. Perfect for dominating any match.
 
 
 
